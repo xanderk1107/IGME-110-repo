@@ -9,7 +9,7 @@ These are *current*, not my **favorites**.
 
 :couple: [Tomodachi Life: Living The Dream](https://www.nintendo.com/us/store/products/tomodachi-life-living-the-dream-switch/?srsltid=AU7gw4VlV012rWY5Zc08Hu4VHWRDwbaRT3FuiP0kW4so23e0jNIUbvWe)
 
-![Zelda Pic](https://assets.nintendo.com/image/upload/c_fill,w_1200/q_auto:best/f_auto/dpr_2.0/store/software/switch2/70010000096821/f20258999e8d852a496dad2961a87faf2b119488f97fb81442f378043e58b000)
+![Zelda Pic](https://www.soundspheremag.com/wp-content/migration/images/stories/TotK_Key_Artwork-1024x576.jpg)
 
 ## Games on Computer
 :hearts: [Kingdom Hearts 1](https://store.steampowered.com/app/2552430/KINGDOM_HEARTS_HD_1525_ReMIX/)
