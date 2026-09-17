@@ -3,13 +3,13 @@
 These are *current*, not my **favorites**.
 
 ## Games on Switch
-[The Legend Of Zelda: Tears of the Kingdom]()
+:bomb: [The Legend Of Zelda: Tears of the Kingdom]()
 
-[PowerWash Simulator]()
+:sweat_drops: [PowerWash Simulator]()
 
-[Tomodachi Life]()
+:couple: [Tomodachi Life]()
 
 ## Games on Computer
-[Kingdom Hearts 1]()
+:hearts: [Kingdom Hearts 1]()
 
-[Fortnite]()
+:gun: [Fortnite]()
